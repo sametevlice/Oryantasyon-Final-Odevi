@@ -1,5 +1,5 @@
 # Oryantasyon-Final-Odevi
-Youtube Video Linki 1.Soru:https://www.youtube.com/watch?v=_fsz1sdSme0
+Youtube Video Linki 1.Soru:https://www.youtube.com/watch?v=_fsz1sdSme0 
 Youtube Video Linki 2.Soru:https://www.youtube.com/watch?v=5LXOVLIylKc
 Youtube Video Linki 3.Soru:https://www.youtube.com/watch?v=dKB3aLECGRo
 Youtube Video Linki 4.Soru:https://www.youtube.com/watch?v=kzOgYqtwy6E
